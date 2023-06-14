@@ -1,1 +1,1 @@
-# Lab1 Repositery
+# Lab1 Repositery.
